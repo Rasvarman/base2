@@ -17,4 +17,10 @@
 
 
 
-![Screenshot_133](https://github.com/user-attachments/assets/15637c57-1e11-41c4-856b-9f2f6f10910b)
+![Screenshot_139](https://github.com/user-attachments/assets/bf7bdba7-d650-4b70-8681-854a2ad265f2)
+
+
+
+# Задание 2
+
+
